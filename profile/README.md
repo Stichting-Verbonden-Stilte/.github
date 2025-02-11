@@ -22,7 +22,7 @@ De operationele werkzaamheden bestaan o.a uit het coördineren van een geweldig 
 
 _Mijn oudste dochter Félice overleed in september 2017 aan de gevolgen van een bacteriële hersenvliesontsteking. Tijdens haar afscheid vertelde ik haar dat ik haar groter in mijn leven wilde en dat ik wilde dat iedereen haar leven zou kennen. Deze woorden zette ik nog geen twee maanden na haar overlijden om in Stichting Félice. Toen Félice overleed heb ik prachtige herinneringen gemaakt in de dagen dat ze nog bij ons was en was ik druk met het vormgeven van het mooiste afscheid. We balsemden Félice waardoor we haar nog volop hebben kunnen kussen en knuffelen. Tijdens de afscheidsdienst lag ze in een bloemenzee in een wit ovalen kistje met roze zwaantje erop. We aten taartjes met haar naam, proosten met roze bubbels op haar leven en lazen haar het laatste verhaaltje voor het ‘slapengaan’. Alles was nog mooier dan ik had durven hopen. De dagen tussen haar overlijden en de uitvaart zijn de mooiste, meest liefdevolle en bijzondere dagen uit mijn leven. Hoe verdrietig ze tegelijkertijd ook waren. Ik wens voor ouders die hetzelfde mee moeten maken, dat zij net zo’n waardevolle week en afscheid mogen hebben als wij met Félice hebben gehad. Eind 2023 besloten we dat het tijd was dat de naam Félice weer terug naar het gezin gaat, waar zij thuishoort. De stichting is hard gegroeid en geprofessionaliseerd. Daar hoort ook een passendere naam bij. Zodoende is de stichting vanaf januari 2024 verdergegaan onder de naam Verbonden Stilte._
 
-Juliette Zwaan, mama van Félice
+> Juliette Zwaan, mama van Félice
 <!--
 
 **Here are some ideas to get you started:**
